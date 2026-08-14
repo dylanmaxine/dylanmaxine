@@ -1,4 +1,4 @@
-## Olá! me chamo Dylan
+## Olá! Me chamo Dylan
 
 
 - 🔭 Atualmente trabalho com patient support 
